@@ -1,0 +1,1 @@
+Once upon a time, in a vast forest, there lived a hare and a tortoise and one day they decided to have a race. The hare started sprinting and left the tortoise in dust. Near the finish line, the hare decided to have a rest while he waited for the tortoise to arrivem. Little did the rabbit know, he slept for a whole hour and the tortoise had already crossed the finish line.
